@@ -20,6 +20,7 @@
     <img width="auto" src="https://64.media.tumblr.com/4e58d86e1d32ecc9ca823ea2a5ff24c6/dd9dd9869ca670f0-6b/s250x400/8a9e04f427934e3f33306fa82d1a9b7de47fa94b.gif" alt=""> <img width="auto" src="https://64.media.tumblr.com/fef73f6e41bd21177a19e52d98418cf9/503f63efa8a419ab-f3/s250x400/43c5cb1a22548ffcddf2fe55adf8ad080e230df0.gif" alt=""> <img width="auto" src="https://64.media.tumblr.com/ca99aa5028efeb1c5578bca0480d372d/5559d93cf6c21722-41/s250x400/c296aeb6676fcaf636903f8eeecf4d115b311453.gif" alt=""> <br/>
     <img width="auto" src="https://64.media.tumblr.com/4190a9dd76687eed039eefe4ab499b3e/55716263dd58e6e4-e6/s100x200/3a330422a6b078016fbcfd5dab67e35fc65ae757.png" alt=""> <img width="auto" src="https://64.media.tumblr.com/4994fd8f43a97cb5328b8a31ef70e0a1/65cc451f8133390f-09/s100x200/99b7010ac9ef0129c1e7cb4d3e18b3f090f85fe3.gif" alt=""> <img width="auto" src="https://64.media.tumblr.com/6b64cd874be59d7770702d9bc97078b7/64660ed43655f981-60/s100x200/870bebd4e7d71febe8cb10a5e137dd70d07ccb41.gif" alt="by digitalita on tumblr"> <img width="auto" src="https://64.media.tumblr.com/2d6554bbef3d145bbefc360d5f0ba764/0d9c08ed8003adc6-82/s100x200/5c863b1f5e6d1e3bcad1833006e6e80daea9e4ed.png" alt="">  
 
+<p align="center"> <a href="https://github.com/godbotherer/godbotherer/blob/main/dni.md">dni</a> </p>
 
 <p align="center">
     <img width="50%" src="https://i.postimg.cc/zGvrLqZL/gitbanner.png" alt="">
