@@ -10,6 +10,8 @@
 <img width="50%" src="https://i.postimg.cc/LsCmL04N/i-wanna-die.gif" alt="">
 </p>
 
+<p align="center"> <img width="auto" src="https://komarev.com/ghpvc/?username=godbotherer&color=eba193&style=plastic" alt=""> </p>
+
 <p align="center">
     <img width="auto" src="https://64.media.tumblr.com/130c682fc90792d81392ff7c6222abb1/70bc3f5035196952-56/s75x75_c1/0be413d7bab1be82906275f47a1cb8cb25a827d4.gif" alt=""> $${\color{pink}interests}$$ : x-men, project moon gmes, yakuza / rgg, vocaloid, horror game & arknights<br/>
     <img width="auto" src="https://64.media.tumblr.com/5592da476a936de0eda7f4fbcb33ceb0/ab4038e9faf38e59-68/s75x75_c1/a3cd66e1969a05d5d5d7bafe10f8c8a26e1100e8.gif" alt=""> Find me at : $${\color{pink}spawn}$$ or $${\color{pink}near \space the \space docks}$$<br/>
