@@ -1,11 +1,19 @@
-![](https://files.catbox.moe/wsrbp6.png)<br/>
-I'll fix this later man
+<p align="center">
+    <img width="75%" src="https://i.postimg.cc/zGvrLqZL/gitbanner.png" alt="">
+</p>
 
-I'll hide / block you if I don't like how you talk to me or proshipper [ I FUCKING HATE INCEST AND PEDOPHILIAC RELATIONSHIPS RAGHHHHH ]
+<p align="center">
+  Hey it's my DNI
+</p>
 
-The only one time I didn't do that was because of a troll and that shit was funny
+<p align="center">
+    <img width="40%" src="https://files.catbox.moe/wsrbp6.png" alt="">
+</p>
 
-  <div align="center">
-        <img alt="Visitor Stats" 
-            src="https://widgetbite.com/stats/godbotherer"/>  
-  </div>
+<p align="center">
+  Mouthwashing fans [ Unless friends ] . hate Gambit/Rogue . proship . under 16 . edtwt / proana
+</p>
+
+<p align="center">
+    <img width="75%" src="https://i.postimg.cc/zGvrLqZL/gitbanner.png" alt="">
+</p>
