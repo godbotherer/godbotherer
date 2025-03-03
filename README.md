@@ -13,7 +13,7 @@
 <p align="center"> <img width="auto" src="https://komarev.com/ghpvc/?username=godbotherer&color=eba193&style=plastic&label=🐇ﾟ" alt=""> </p>
 
 <p align="center">
-    <img width="auto" src="https://64.media.tumblr.com/130c682fc90792d81392ff7c6222abb1/70bc3f5035196952-56/s75x75_c1/0be413d7bab1be82906275f47a1cb8cb25a827d4.gif" alt=""> $${\color{pink}interests}$$ : x-men, project moon gmes, yakuza / rgg, vocaloid, horror game & arknights<br/>
+    <img width="auto" src="https://64.media.tumblr.com/130c682fc90792d81392ff7c6222abb1/70bc3f5035196952-56/s75x75_c1/0be413d7bab1be82906275f47a1cb8cb25a827d4.gif" alt=""> $${\color{pink}interests}$$ : x-men, project moon gmes, yakuza / rgg, vocaloid, horror games & arknights<br/>
     <img width="auto" src="https://64.media.tumblr.com/5592da476a936de0eda7f4fbcb33ceb0/ab4038e9faf38e59-68/s75x75_c1/a3cd66e1969a05d5d5d7bafe10f8c8a26e1100e8.gif" alt=""> Find me at : $${\color{pink}the \space comics \space area}$$ or $${\color{pink}the \space project \space moon \space corner}$$<br/>
     ⿸﹒⸝⸝﹒ Free 2 interact ! I'm just shy <img width="auto" src="https://64.media.tumblr.com/71ea1799a707063977262b46db3ebeb4/10342b6bb5a2dbf2-21/s75x75_c1/6e22c9b39687c0a882a87a0eb959c45bd9b9f828.gif" alt=""> <br/>
     ㅤ<br/>
