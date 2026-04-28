@@ -1,1 +1,1 @@
-<p align="center"> <img width="50%" src="https://64.media.tumblr.com/c4eec531a7b53592a237145b5d2b42b2/1b0af56a2253f8c7-ad/s250x400/8c8b26c70160b515e01eff81fd5782d1d9d8ecaa.gif"> <br> "Let me say this to start: I am fairly strong!" </p>
+<p align="center"> <img width="50%" src="https://64.media.tumblr.com/1c15b6d657b9e0813838bba0ff26cc33/7628212e97c957fd-1c/s1280x1920/829a6b9928ffffc65f42d1ee6863dacb555f7cec.png"> <br> "Let me say this to start: I am fairly strong!" </p>
