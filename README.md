@@ -6,6 +6,6 @@
 
 <p align="center"><img width=13% src="https://64.media.tumblr.com/ca8aac05dc83f329a29034c09f310e35/d6ee51af84da3f6e-33/s400x600/2c860cc49e7a006f58e98e3324710ac3b28ed4f3.png"> <img src="https://64.media.tumblr.com/9235889a79fba841ec6394c500900706/772a6c5f5f7c3182-3e/s100x200/db05c03b781246b09efc24bc816bee61b53083ec.gif"> <img src="https://64.media.tumblr.com/f81e67bb7785568cc9cccb70c4601cbf/0eb1eedc2f7658ed-10/s100x200/d5715d9586028421beca6c380e4e7d1bc1765f0f.gif"> <img src="https://64.media.tumblr.com/637a406332ba6e0345aff0b9e0548aa5/86408c0474108007-68/s100x200/7759785f6fc0f1a58f3bdb884fcd2bc6b9172499.gif"> <img src="https://64.media.tumblr.com/8b5a1b3707542f381d02a104ca4e6edb/232c137d8eadfebc-e3/s100x200/6de5049bf8267fc5a7d89f62af56f926047799fe.jpg" </p>
 
-<p align=center> <img width=50% src="https://64.media.tumblr.com/1aa789e72a3b59ddd5b0df519c290ff9/ecadbae6ca157e23-d6/s1280x1920/d2026e19cbf4dbff59dec9ebf09317bf01bdbbaf.jpg"></p>
+<p align=center> <img width=30% src="https://64.media.tumblr.com/1aa789e72a3b59ddd5b0df519c290ff9/ecadbae6ca157e23-d6/s1280x1920/d2026e19cbf4dbff59dec9ebf09317bf01bdbbaf.jpg"> fixated on . . . kamen rider && outlast</p>
 
 <img src="https://64.media.tumblr.com/b29f49600946257692eb3b40878ca07d/0c2ec245ca7fd467-c4/s1280x1920/ccff2985d7f6016eeb89f0839f55781fb6d99ec3.png">
