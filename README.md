@@ -1,6 +1,3 @@
-<center>
-  <img src="https://64.media.tumblr.com/1c15b6d657b9e0813838bba0ff26cc33/7628212e97c957fd-1c/s1280x1920/829a6b9928ffffc65f42d1ee6863dacb555f7cec.png" style="width: 100%;">
-⠀<p>let⠀me⠀say⠀this⠀to⠀start :⠀<b>I⠀am⠀fairly⠀strong⠀!</b></p>
-  <img src="https://64.media.tumblr.com/4153132a9640ec9c321ffabe522c3e6c/71ea583abb5d55e8-89/s2048x3072/9fe4e6672231fe1f267ccdef425fec9ef1a03463.png" style="width: 100%;">
-</center>
+  <img src="https://64.media.tumblr.com/e21541c52c78bf3cf922ad1c6ad5003c/0eb1eedc2f7658ed-4c/s250x400/d2333cac22de20a0fccb838b42abbc99e5c6ae3a.gif" style="width: 100%;">
+⠀<p style="text-align: cemter;">let⠀me⠀say⠀this⠀to⠀start :⠀<b>I⠀am⠀fairly⠀strong⠀!</b></p>
 
